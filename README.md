@@ -1,4 +1,4 @@
-Wyższa Szkoła Bankowa w Chorzowie
+WSB Merito w Chorzowie
 Kierunek: Informatyka
 Chorzów, 29.01.2026
 ________________________________________
